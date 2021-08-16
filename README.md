@@ -1,0 +1,2 @@
+# KENDARI-ILSAND-ROLEPLAY
+Bot register
